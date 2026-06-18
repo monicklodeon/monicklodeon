@@ -8,5 +8,7 @@
 - atras de sonhos ⏰
 
 ## entre em contato:
-monique.amadeu@escola.pr.gov.br
+- monique.amadeu@escola.pr.gov.br
+
+
 ![](https://media.tenor.com/DCScm2moJ7EAAAAC/duh-sarcastic.gif)
